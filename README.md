@@ -1,2 +1,2 @@
 
-Ejercicio Del Grupo 4 (SigmaScripts) ing Informatica Seccion 2
+Ejercicio Del Grupo SigmaScripts ing Informatica Seccion 2
